@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Rotoa1
+- 👀 I’m interested in drawing, gaming, reading, sports etc
+- 🌱 I’m currently learning nothing at the moment as im just exploring my options 
+- 📫 How to reach me on instagram- rotoa_nanai
+- 😄 Pronouns: she/her
